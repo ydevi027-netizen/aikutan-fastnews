@@ -1,0 +1,1 @@
+# aikutan-fastnews
